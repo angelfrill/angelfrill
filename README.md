@@ -1,4 +1,6 @@
 ## Hi there 👋
+![chobits header]([https://myoctocat.com/assets/images/base-octocat.svg](https://64.media.tumblr.com/a27743ce7f4e10c8e462ee4874fce49f/583ebadf63764fcc-f8/s1280x1920/bebf9082c67702e57a137e11bb38916e0ad8b1f6.png))
+
 
 <!--
 **angelfrill/angelfrill** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
