@@ -1,7 +1,8 @@
+<p align="center">
 
 ![image1](https://github.com/angelfrill/angelfrill/blob/main/tumblr_439081064f5d601f51f44d511057a8d1_db5ffcaf_250.gif?raw=true)
 
-###♡ Mini . 22 . intp 4w3 . irl angel
+## ♡ Mini . 22 . intp 4w3 . irl angel
 
 ![imageborder](https://github.com/angelfrill/angelfrill/blob/main/tumblr_29bcee9505bb0da17ec24918086b57c6_54b4c0c6_2048.png?raw=true)
 
@@ -22,3 +23,4 @@ Creepypasta, Visual novels, RPGS, Chobits, Toradora, The walking dead games, Psy
 Yanderes, Roleplaying
 
 ![imageborder](https://github.com/angelfrill/angelfrill/blob/main/tumblr_a406aa1f13b475df66ebb250c5b9afb3_bd8fb968_250.gif?raw=true)
+</p>
