@@ -3,9 +3,7 @@
 <img src="https://github.com/angelfrill/angelfrill/blob/main/tumblr_439081064f5d601f51f44d511057a8d1_db5ffcaf_250.gif?raw=true
 </p>
 
-<p align="center">
-<img src="https://github.com/angelfrill/angelfrill/blob/main/tumblr_a406aa1f13b475df66ebb250c5b9afb3_bd8fb968_250.gif?raw=true
-</p>
+
 
 ![image1](https://github.com/angelfrill/angelfrill/blob/main/tumblr_439081064f5d601f51f44d511057a8d1_db5ffcaf_250.gif?raw=true)
 
