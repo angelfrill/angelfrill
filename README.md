@@ -18,7 +18,9 @@ I struggle with multiple diagnosed disorders so please interact with caution!! I
 
 ### <div align="center"> ♡ Interests</div>
 
-(These are not all my interests!)
+ <div align="center"> (These are not all my interests!)</div>
+
+
 Dandys world, Roblox, My little pony, Wadanohara and the great blue sea, The grey garden, Genshin, Minecraft, Danganronpa
 Mystic Messenger, Persona 3-5, Needy streamer overload, Boyfriend to death, TF2, Spooky month, Pun Pun, Doki Doki Literature club
 Creepypasta, Visual novels, RPGS, Chobits, Toradora, The walking dead games, Psychology, Cosplaying, Cats, Digital art, Pokemon
