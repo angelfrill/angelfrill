@@ -1,7 +1,6 @@
 
+<div align="center">![image1](https://github.com/angelfrill/angelfrill/blob/main/tumblr_439081064f5d601f51f44d511057a8d1_db5ffcaf_250.gif?raw=true) </div>
 
-
-![image1](https://github.com/angelfrill/angelfrill/blob/main/tumblr_439081064f5d601f51f44d511057a8d1_db5ffcaf_250.gif?raw=true)
 
 
 ## <div align="center"> ♡ Mini . 22 . intp 4w3 . irl angel</div>
